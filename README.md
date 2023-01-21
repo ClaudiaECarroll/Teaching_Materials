@@ -2,4 +2,4 @@ This repo contains materials and resources for my teaching on literature and the
 
 Link to materials:
 
-https://drive.google.com/file/d/13RuV5HmuKtvKKyj5_0-llKVckWiio6VR/view?usp=share_link
+https://drive.google.com/drive/u/0/folders/15B-PwI9E6h_ODg-Df-0dKpM7rNvQRAI9
